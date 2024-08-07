@@ -10,6 +10,10 @@ Mit diesem Schreiben erklären die Benutzer der _yo_ctm_-Community am Dienstag, 
 
 Dieses Dokument ist in den Subreddits _yo_ctm_ und _ich_irl_ gültig und kann von keiner Seite dementiert werden.
 
+
+
+
+
 Firma:
 _u/FeSML009_,
 _u/Plenty-Flight2827_,
