@@ -5,5 +5,6 @@ Mediante el presente escrito, el día Martes 06 de agosto del presente año 2024
 Este documento tiene validez en los subreddits _yo_ctm_ y _ich_irl_ y no puede ser denegado por ningún bando.
 
 Firma:
-_u/FeSML009_
-_u/Plenty-Flight2827_
+_u/FeSML009_,
+_u/Plenty-Flight2827_,
+_u/Snoo_32309_
